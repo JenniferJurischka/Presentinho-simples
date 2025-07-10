@@ -1,0 +1,6 @@
+Oi amor! Esse era para ser nosso presente de 9 meses, já que não vamos conseguir nos ver e nem vou conseguir te dar algo, mas pensei em algo melhor então deixei esse apenas como um presentinho simples, sei que as coisas estão bem conturbadas no momento - 
+bom pelo menos na minha situação - e que não estamos conversando tanto quanto eu queria, ou o que estávamos acostumados, mas ainda assim eu queria marcar alguma presença no seu dia, e como eu não estou conseguindo desenhar muito por causa dos estudos e da rotina,
+decidi usar dos meus estudos para fazer algo para você. Não é exatamente o que eu ando estudado, isso na verdade eu peguei na internet, mas foi um dos primeiros códigos que eu peguei para estudar como que cada função funcionava dentro do resultado, e decidi
+então fazer ela para você!
+Desculpe se a espera foi muita, ou que você talvez estivesse esperando algo amais pela demora que foi para eu dizer o que estava fazendo, mas eu queria só deixar claro que eu fiz de coração <3, por mais simples que seja.
+Eu te amo muito, obrigada por ainda estar comigo e me apoiando, isso significa muito pra mim - e mesmo que não pareça, tem me ajudado bastante, pois lembrando que tenho você tornando meus dias melhores, minha depressão não ganha de mim.
